@@ -4,7 +4,7 @@ Developer & Freelancer
 ----------------------  
 I Don't Like To Define Myself By The Work I've Done. I Define Myself By The Work I Want To Do. Skills Can Be Taught, Personality Is Inherent. I Prefer To Keep Learning, Continue Challenging Myself, And Do Interesting Things That Matter.  
 * 🌍  I'm based in Paris, FR 
-* * 🖥️  See my portfolio at [MyPortfolio](http://deathgun.me)
+* 🖥️  See my portfolio at [MyPortfolio](http://deathgun.me)
 
 <a href="https://www.twitter.com/DeaThGuNNNNN" target="_blank" rel="noreferrer"><img src="https://img.shields.io/twitter/follow/DeaThGuNNNNN?logo=twitter&style=for-the-badge&color=0891b2&labelColor=000000" /></a>
 
