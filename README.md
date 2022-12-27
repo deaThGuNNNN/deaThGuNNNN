@@ -2,7 +2,13 @@ Hi 👋 My name is Riyad
 ======================  
 Developer & Freelancer 
 ----------------------  
+
+I'm Riyad AKA DeaThGuN. I'm A Multi-Talented Human With Over 5+ Years Of Experiences In Wide Range Of Disciplines, Entrepreneur, Developer, Music Producer, Trader, Gamer And More.
+
 I Don't Like To Define Myself By The Work I've Done. I Define Myself By The Work I Want To Do. Skills Can Be Taught, Personality Is Inherent. I Prefer To Keep Learning, Continue Challenging Myself, And Do Interesting Things That Matter.  
+
+Fuelled By High Energy Levels And Boundless Enthusiasm, I'm Easily Inspired And More Then Willing To Follow My Fascinations Wherever They Take Me. I'm Passionate, Expressive, Multi-Talented Spirit With A Natural Ability To Entertain And Inspire. I'm Never Satisfied To Just Come Up With Ideas. Instead I Have An Almost Impulsive Need To Act On Them. 
+
 * 🌍  I'm based in Paris, FR 
 * 🚀  I Help Businesses Do Better Online.
 * 🖥️  See my portfolio at [MyPortfolio](http://deathgun.me)
