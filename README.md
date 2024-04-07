@@ -3,7 +3,7 @@ Hi 👋 My name is Riyad
 Developer & Freelancer 
 ----------------------  
 
-I'm Riyad AKA DeaThGuN. I'm A Multi-Talented Human With Over 5+ Years Of Experiences In Wide Range Of Disciplines, Entrepreneur, Developer, Music Producer, Trader, Gamer And More.
+I'm Riyad AKA DeaThGuN. I'm A Multi-Talented Human With Over 5+ Years Of Experiences In Wide Range Of Disciplines, Full-Stack Developer, Entrepreneur, Music Producer, Trader, Gamer And More.
 
 I Don't Like To Define Myself By The Work I've Done. I Define Myself By The Work I Want To Do. Skills Can Be Taught, Personality Is Inherent. I Prefer To Keep Learning, Continue Challenging Myself, And Do Interesting Things That Matter.  
 
